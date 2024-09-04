@@ -2,7 +2,7 @@
 - 👀 I’m interested in solving world problems with codes 
 - 🌱 I’m currently learning web development 
 - 💞️ I’m looking to collaborate on web development 
-- 📫 How to reach me chukwukapraise15@gmail.com //08127718575
+- 📫 How to reach me chukwukapraise15@gmail.com // +2348127718575 // +2349131509170
 
 <!---
 Chukwuka103/Chukwuka103 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
